@@ -1,6 +1,6 @@
 # Blog
 
-September 17, 2020._
+_September 14, 2020._
 
 #### By _**Amanda Otero**_
 
